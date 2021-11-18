@@ -1,3 +1,5 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is hariton4569#3854
+
 # Created token with large supply
 
 ## Description
